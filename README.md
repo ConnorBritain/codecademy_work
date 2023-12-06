@@ -1,4 +1,4 @@
-# My Codecademy Learning Odyssey 🚀
+# My Codecademy Learning Odyssey
 
 ## Welcome Aboard! 🌟
 
